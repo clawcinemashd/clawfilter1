@@ -1,9 +1,9 @@
     # Credit @LazyDeveloper.
     # Please Don't remove credit.
-    # Born to make history @LazyDeveloper !
+    # Born to make history @clawcinemas !
 
     # Thank you LazyDeveloper for helping us in this Journey
-    # 🥰  Thank you for giving me credit @LazyDeveloperr  🥰
+    # 🥰  Thank you for giving me credit @clawcinemas  🥰
 
     # for any error please contact me -> telegram@LazyDeveloperr or insta @LazyDeveloperr 
 
